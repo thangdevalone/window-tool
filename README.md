@@ -52,6 +52,7 @@ Windows và Office 365 là hai bộ công cụ quan trọng giúp người dùng
 
 ## 😍 Crack
 👉 **AIO tool**: [Trên repo này] - Tải về và chạy với quyền admin để crack sau khi đã cài xong phần mềm  
+
 ---
 
 ## 📢 Đóng Góp & Liên Hệ
